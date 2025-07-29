@@ -1,6 +1,6 @@
 ## averie !
 
-19 . he/they
+20 . they/he
 
 taken <3 7/17/24
 
