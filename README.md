@@ -4,6 +4,6 @@
 
 taken <3 7/17/24
 
-_aventurine_ / luca / kaoru / niki kinnie
+_aventurine_ / luca kinnie
 
 ok to fllw / interact ! write on my strawpage ^-^
